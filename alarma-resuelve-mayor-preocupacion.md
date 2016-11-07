@@ -1,3 +1,5 @@
+# Una alarma puede resolver nuestra mayor preocupación
+
 Más del 80% de los españoles declaran que el principal temor ante la existencia de cualquier robo, es encontrarse en su domicilio cuando se produzca. Esta preocupación está por encima de cualquier destrozo o incluso de la pérdida de objetos de valor o dinero. Un temor que aumenta en las grandes ciudades como Madrid, Barcelona, San Sebastián… donde se producen diariamente **robos evitables con una alarma de hogar**.
 
 ![Alarma resuelve mayor preocupación](https://cdn-es.alarmadoo.com/wp-content/uploads/sites/6/2016/11/mayor-preocupacion-alarma.jpg)
