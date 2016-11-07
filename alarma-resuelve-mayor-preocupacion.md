@@ -26,3 +26,4 @@ La principal solución ante esto además de dejarse aconsejar por un psicólogo,
 
 [Infórmate y compara con la guía de alarmas para casa](https://es.alarmadoo.com/alarmas-para-casa "alarmas para casa")
 
+La entrada [Una alarma puede resolver nuestra mayor preocupación](https://es.alarmadoo.com/alarma-resuelve-mayor-preocupacion/) aparece primero en [alarmadoo (es)](https://es.alarmadoo.com).
